@@ -54,5 +54,5 @@
 
 📝 **MIT License** – Feel free to use, remix, and spread Holi joy in your own way!
 
-💖 Made with love by **Aoudumber Bade** 💖
+💖 Made with love by **Aryan** 💖
 
